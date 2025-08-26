@@ -1,1 +1,1 @@
-This Entire website Entraces all my websites, older and newer projects i made/will make. This is important
+This is the archive for the old version of the portfolio. This was in the main one but took up too much space
